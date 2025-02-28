@@ -1,8 +1,8 @@
 # CS2-External-Release
-This is a CS2 external cheat. This will be fully updated every update (unless a big update happens may be longer) My discord server is linked below so is all the showcase files.
+This is a paid CS2 external cheat. it costs $5 for lifetime. Join the server to get purchase. This will be fully updated every update (unless a big update happens may be longer) My discord server is linked below so is all the showcase files.
 
 **DISCORD SERVER** : https://discord.gg/gwEMXW4RWX
-
+**DOWNLOAD** https://discord.gg/gwEMXW4RWX: 
 ![image 2](https://github.com/user-attachments/assets/b8777a33-1807-44ff-90e0-82d5a19452b4)
 ![image 3](https://github.com/user-attachments/assets/40fd1f9b-b35b-4103-820d-e2b91bdd3112)
 ![4](https://github.com/user-attachments/assets/4500402f-090b-4cd6-a511-9bfefa8d82c9)
