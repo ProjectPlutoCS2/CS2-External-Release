@@ -1,4 +1,6 @@
 # CS2-External-Release
+**Project Pluto** The new counter strike 2 external cheat :fire:
+
 This is a paid CS2 external cheat. it costs $5 for lifetime. Join the server to get purchase. This will be fully updated every update (unless a big update happens may be longer) My discord server is linked below so is all the showcase files.
 
 **DISCORD SERVER** : https://discord.gg/gwEMXW4RWX
